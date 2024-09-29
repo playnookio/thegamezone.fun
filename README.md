@@ -1,3 +1,5 @@
+website: https://thegamezoen.fun
+
 Are you ready to immerse yourself in a universe of free online games? Look no further than TheGameZone.fun, your ultimate destination for high-quality browser games that promise endless entertainment. Whether you're a casual gamer looking for a quick break or a dedicated player seeking new challenges, TheGameZone has something for everyone. With new games added daily, there's never a dull moment. Let's explore what makes TheGameZone.fun the perfect place to play online games for free.
 
 
